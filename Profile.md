@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Rinc0-YT or Rinc0!
+- 👀 I’m interested in gaming, coding, and scripts!
+- 🌱 I’m currently learning science and video editing!
+- 💞️ I’m looking to collaborate on FNF mods or making a roblox game!
+- 📫 How to reach me on Discord: ✨Rinc0✨#0100, YouTube: https://www.youtube.com/channel/UCHfpleYVubd3iIGpmrx8QDA, or Roblox: https://www.roblox.com/users/1520768279/profile
